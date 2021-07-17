@@ -5,7 +5,6 @@ title: Brigham Young's Resume
 # Nathan Lee
 A student at BYUI
 
-
 ## Education
 
 `2018-2019`
