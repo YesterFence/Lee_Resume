@@ -22,6 +22,9 @@ __Brigham Young University - Idaho__, Rexburg, ID
 
 ## Related Experience
 
+edit: Have you done anything with online work? 
+Do you have a youtube channel that show projects you have done?
+
 ### Extracurriculars
 
 `June 2017`
